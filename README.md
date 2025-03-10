@@ -1,2 +1,0 @@
-# wallpaper
-Creating a wallpaper
